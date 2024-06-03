@@ -11,7 +11,7 @@ Growing up as an Army child, I learned the values of discipline, integrity, and 
 
 ### Get in Touch
 
-📧 Email: adarshshamshervimal@gmail.com
+📧 Email: adarshsvimal@gmail.com
 
 ### Let's Connect
 
