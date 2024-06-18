@@ -12,9 +12,4 @@ Growing up as an Army child, I learned the values of discipline, integrity, and 
 ### Get in Touch
 
 📧 Email: adarshsvimal@gmail.com
-
-### Let's Connect
-
-I'm looking forward to connecting and exploring mutually beneficial opportunities.
-
 ---
